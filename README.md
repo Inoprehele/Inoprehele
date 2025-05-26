@@ -19,7 +19,7 @@
 ---
 
 
-![snake gif](https://github.com/Platane/snk/raw/output/github-contribution-grid-snake.svg)
+![snake gif](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExaG12aXY5MW90MWozMXFkMmNrMndhNW11cm9rY2FvZWs1bzkybjFkZiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/QpVUMRUJGokfqXyfa1/giphy.gif)
 
 ---
 
