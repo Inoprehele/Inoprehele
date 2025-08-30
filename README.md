@@ -5,7 +5,7 @@
 
 💝Always trying to find myself
 
-<p><img src="https://s.widget-club.com/samples/s7A2D3BHM7f8NXG1llgnzn3quJa2/KivjmVE3h4wT8ccMwfgp/FC035DF1-CB76-4541-B05F-E6DBBB56A403.jpg?q=70" alt="" width="99" height="99" /></p>
+<p><img src="https://img.icons8.com/?size=100&id=09zsz3LWhoVq&format=png&color=7950F2" alt="" width="99" height="99" /></p>
 <p><strong>💝Discord - Inoprehele</strong></p>
 <p><strong>💝Discord server[RU] - https://discord.gg/VUc5ghETPQ</strong></p>
 <p><strong><img src="https://img.icons8.com/?size=100&id=QlYmLa7mFBa6&format=png&color=7950F2" alt="" width="99" height="99" /></strong></p>
